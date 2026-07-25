@@ -1,1 +1,1 @@
-# Projet-Partie-Sym-trique-cumberland
+# Projet-Partie-Symtrique-cumberland
